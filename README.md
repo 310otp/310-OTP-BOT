@@ -17,4 +17,7 @@ to ensure that any call you make, will result in success
 ❄ Cheap Pricing
 ❄ Free OTP Access
 
-Join the Discord @ discord.gg/310otp
+Join the Discord @ 
+discord.gg/310otp
+https://discord.com/invite/310otp
+https://t.me/otpbotting
